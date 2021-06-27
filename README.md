@@ -1,0 +1,1 @@
+# AlchemyStars-localization-CHS
